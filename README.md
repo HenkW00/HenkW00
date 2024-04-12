@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Head Developer | Amsterdam Roleplay <br>💼 HW Development<br>🛒 https://hw-scripts-store.tebex.io/<br>🌱 I’m currently learning so dont attack me<br>💬 Ask me about anyhting<br>⚡ Fun fact
+🔭 Head Developer | Amsterdam Roleplay <br>💼 HW Development<br>🛒 https://hw-scripts-store.tebex.io/<br>🌱 I’m currently learning alot, mistakes can happen ;)<br>💬 Ask me about anyhting<br>⚡ Fun fact
 
 
 ## 🌐 Socials:
