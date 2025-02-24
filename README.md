@@ -1,5 +1,5 @@
 # 💫 About Me:
-💼 HW Development<br>🛒<br>
+💼 HW Development<br>
 
 
 ## 🌐 Socials:
