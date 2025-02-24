@@ -1,5 +1,5 @@
 # 💫 About Me:
-💼 HW Development<br>🛒 https://hw-scripts-store.tebex.io/<br>🌱 I’m currently learning alot, mistakes can happen ;)<br>💬 For support please join the discord and open a support ticket!<br>
+💼 HW Development<br>🛒<br>
 
 
 ## 🌐 Socials:
